@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m really want to learn coding
 - 💞️ I’m looking to collaborate on My mom 💘
-- 📫 How to reach me ...
+- 📫 How to reach me playing BOPIT!
 
 <!---
 Marcwatts801/Marcwatts801 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
